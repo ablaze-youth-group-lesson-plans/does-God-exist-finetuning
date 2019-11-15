@@ -37,18 +37,22 @@ mathematical probabilities. Chance has no power, because chance is not a being -
 
 Q. When scientists say the appearance of fine-tuning is a result of coincidence - is that a satisfying answer when explaining the fine-tuning of the universe?
 
+If time permits, let them browse some of the fine-tuning examples from a foundational level (as opposed to regional and locational which the other devotional stations will have)
+
 # Station 2 - Is Fine-Tuning the result of physical necessity? (it just had to be that way)
 
 Look at the 3 fine-tuning charts printed out (finetune.docx)
 
 Q. Some cosmologists believe the universe is the way it is because the laws of physics do not allow any alternative (if the laws of nature are fixed and inflexible, no other versions of these laws are possible). - is that a satisfying answer when explaining the fine-tuning of the universe?
 
-Q. Is there is reason to believe the laws of nature could have been different?
+Q. Is there reason to believe the laws of nature could have been different?
 
 Q. Even if the foundational laws of the universe were fixed, does this explain the regional and locational fine-tuning examples?
 
 - Read Romans 1:20
   Q. If the laws of physics we observe in the universe are simply the reflection of one of God's "invisible attributes," what does this tell us about the nature of God?
+
+If time permits, go through the fine-tuning examples from a regional level (as opposed to a foundational and locational which the other devotional stations will have)
 
 # Station 3 - Is Fine-Tuning the result of a multiverse?
 
@@ -60,17 +64,19 @@ Q. If a multiverse generator exists, would it be more or less fine-tuned than th
 Q. Does the multiverse theory point to inside the room or outside the room? (A. outside, since it would be outside space, time and matter)
 Q. Yet scientists assume a multiverse generator is spatial, temporal and has material properties - is that reasonable given the previous answer? (A. it's contradictory, and doesn't explain how the multiverse generator began to exist)
 
-- Read Romans 1:21-22 - do you see any connection as why smart people with Ph.D's aren't willing to see the evidence that God exists?
+Read all the fine-tuned examples from a locational level, then ask yourself the following:
 
-- Play multiverse.mp4 starting from 43:13 to 49:54 (6 mins)
+Q. What kind of being could create the universe from nothing yet act purposefully enough to design a universe fine-tuned for life?
+
+- Show Krauss' quote
+  Q. When physicists say the universe began to exist out of nothing, do they meahn absolutely nothing? (A. no. They changed the definition of nothing. Which means they still can't around to explain how something arose out of nothing)
+  Q. Laurence Krauss, Ph.D in Physics tries to explain the multiverse and how our universe (space, time, matter) began to exist. Can you spot how he illogically introduces space, matter, and time before they began to exist?
+
+If time permits, go through the fine-tuning examples from a locational level (as opposed to a foundational and regional which the other devotional stations will have)
 
 # Station 4 - Is Fine-Tuning the result of design?
 
-Play the video file "EverybodyAgrees.mp4"
-
-Read all the fine-tuned examples, then ask yourself the following:
-
-Q. What kind of being could create the universe from nothing yet act purposefully enough to design a universe fine-tuned for life?
+Play the video file "EverybodyAgrees.mp4" then play
 
 # Conclusion
 
